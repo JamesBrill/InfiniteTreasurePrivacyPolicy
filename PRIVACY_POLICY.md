@@ -8,4 +8,4 @@ If you find any security vulnerability, or have any question regarding how the a
 
 Yours sincerely,  
 James Brill
-contact@jamesbrill.co.uk
+infinitetreasureapp@gmail.com
